@@ -16,5 +16,10 @@ And all the things you do
 
 And it was called "Yellow"
 
+So then I took my turn
 
-# Coldplay
+Oh what a thing to have done
+
+And it was all yellow
+
+-Coldplay
